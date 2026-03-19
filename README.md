@@ -1,4 +1,4 @@
-![MasterHead](https://media.licdn.com/dms/image/v2/D4D16AQGDExZySEOa9g/profile-displaybackgroundimage-shrink_350_1400/B4DZu9tcK2JgAY-/0/1768414373920?e=1772668800&v=beta&t=FBQV4lskkymXC1r7LSYsDgJJFo49supeeZM5PVAZ1Fc)
+![MasterHead](https://www.linkedin.com/in/yusuf-cezlan-530524385/overlay/background-photo/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BdhK51arlQ5aZyvMDisogXQ%3D%3D)
 
 
 
